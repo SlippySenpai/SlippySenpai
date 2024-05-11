@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SlippySenpai
 - 👀 I’m interested in Video Games and Animation
-- 🌱 I’m currently in Grade 10th
+- 🌱 I’m currently in Grade 11th
 - 📫 How to reach me : Via my Email:- divyanshu.r207@gmail.com 
 
 <!---
